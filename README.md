@@ -6,8 +6,3 @@
 - 🌱 I’m currently learning **new technology**
 
 - 📫 How to reach me **phamsyphuc123@gmail.com**
-
-<h3 align="left">Connect with me:</h3>
-<p align="left">
-</p>
-
